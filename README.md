@@ -1,1 +1,0 @@
-# dedikosasih.github.io
